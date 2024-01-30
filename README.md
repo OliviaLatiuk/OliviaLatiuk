@@ -10,7 +10,6 @@ Join us on this journey where every connection made is a step towards a brighter
 
 ---
 
-## About Us
 # About Us 🌟
 
 Welcome to GuardianHarbor, where our commitment to revolutionizing pet fostering and adoption is driven by a heartfelt passion for animals. Founded by our dedicated owner, Olivia Latiuk, GuardianHarbor is more than just a platform—it's a personal mission inspired by Olivia's own journey of adoption.
