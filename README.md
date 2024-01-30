@@ -65,7 +65,7 @@ Join us in building a community where every pet finds a loving home, and every c
 
 ## 📫 How to Connect with Us
 
-We welcome your inquiries, collaboration proposals, and support requests. Don't hesitate to reach out to us at guardianharborteam@gmail.com. Your messages are important to us, and we look forward to hearing from you for inquiries, collaboration, or support!
+We welcome your inquiries, collaboration proposals, and support requests. Don't hesitate to reach out to us at guardianharborteam@gmail.com. Your messages are important to us, and we look forward to hearing from you!
 
 
 
